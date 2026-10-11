@@ -1,5 +1,5 @@
 
-# Hi, I'm Sherwin Jabin 👋
+# Hi, I'm Sherwin Vaiz P 👋
 
 ### Electronics and Communication Engineering Student
 
